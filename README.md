@@ -1,1 +1,0 @@
-# vocacional-Shalom2027
